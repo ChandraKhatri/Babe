@@ -1,2 +1,2 @@
 
-ChandraKhatri/Babe/Shrimati ji
+ChandraKhatri
